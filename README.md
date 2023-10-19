@@ -1,4 +1,3 @@
-### Hi there 👋
 
 ## ✨ Who is YoungEun Lee? ✨
 - 👩‍🎓 Soonsil Univ. IISE / CSE
